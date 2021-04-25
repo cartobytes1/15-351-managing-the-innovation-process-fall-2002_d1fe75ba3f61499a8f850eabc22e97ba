@@ -1,0 +1,1 @@
+# 15-351-managing-the-innovation-process-fall-2002_d1fe75ba3f61499a8f850eabc22e97ba
